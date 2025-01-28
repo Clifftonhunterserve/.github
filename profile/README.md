@@ -19,13 +19,18 @@ By choosing the Code 118 Wallet, you are not just investing in a stylish wallet,
 ## Key Features and Specifications of the Code 118 Wallet
 
 Dimensions: 3.9 x 2.3 x 0.29 inches
+
 Capacity: Holds 1–7 cards in the main compartment, plus up to 3 cards in the strap
+
 Materials: Aerospace-grade 6061-T6 aluminum & 3K carbon fiber for unmatched durability
+
 Mechanism: Quick-Deploy™ technology for one-touch card access
+
 Cash Storage: Carbon fiber strap to secure cash, receipts, or additional cards
+
 RFID Protection: Comprehensive protection against unauthorized card scanning
+
 Durability: Built to withstand impacts, moisture, and wear
-Warranty: Lifetime replacement guarantee
 
 ## Top Features That Make the Code 118 Wallet Stand Out
 
